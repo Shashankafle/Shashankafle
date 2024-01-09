@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Shashankafle
 - 👀 I’m interested in eating.
-- 🌱 I’m currently learning at Trichanda
+- 🌱 I’m currently a liver
+  
 - 💞️ I’m looking to collaborate on having sex.
 
 <!---
